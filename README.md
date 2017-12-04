@@ -1,1 +1,7 @@
-# naniwaduni
+序歌：なにわづにさくやこのはなふゆごもりいまをはるべとさくやこのはな
+
+
+意味：難波津にこの花が咲いたよ。冬の間はこもっていた花が、 いよいよ春だと、この花が咲いたよ
+
+![jyuera](https://user-images.githubusercontent.com/29721925/33560358-dbc9b120-d952-11e7-9e68-e839ee9ebe32.jpg)
+
